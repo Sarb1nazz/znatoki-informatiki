@@ -1,0 +1,1 @@
+# znatoki-informatiki
